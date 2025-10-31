@@ -1,0 +1,1 @@
+These notebooks were assembled when I would spend much more time talking through things and geeking out on them. Don't be intimidated! If it seems long and laborious, it PROBABLY IS. Feel free to ask me if you have questions.
